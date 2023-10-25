@@ -1,0 +1,2 @@
+# primer-repositori
+repositori tarik
